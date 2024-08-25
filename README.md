@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LovemyDeveloper
-- 👀 I’m interested in ... I'm excited to learning more about coming a developer for paypal.  
+- 👀 I’m interested in ... I'm excited to learn more about coming a developer for paypal.  
 - 🌱 I’m currently learning ... /Paypal Developing   
 - 💞️ I’m looking to collaborate on ... Everything I need to do to become the best developer so that youre payments are processed smoothly.
 - 📫 How to reach me ... (336)588-7111 or at Lailjessica93@gmail.com  
